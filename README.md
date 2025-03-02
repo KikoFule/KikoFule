@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @KikoFule
 - 👀 I’m interested in Vrška
-- 🌱 I’m currently learning nebýt kokot
+- 🌱 I’m currently learning nebyť kokot
 - 💞️ I’m looking to collaborate on Brava tuning
 - 📫 How to reach me v atlante budem
 - 😄 Pronouns: FU/LE
